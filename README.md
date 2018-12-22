@@ -1,1 +1,1 @@
-Please Reference to Wiki.
+개발 공부일지(From Wiki)
